@@ -1,0 +1,2 @@
+# socorro deus
+ta ai 
